@@ -1,0 +1,1 @@
+senlik\_yasemin90@hotmail.com || snlkysmn@gmail.com
